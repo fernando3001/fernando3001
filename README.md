@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fernando3001
+- 👀 I’m interested in programming and everything about cybersecurity.
+- 🌱 I’m currently learning cibersecurity
+- 💞️ I’m looking to collaborate on ...
+- 📫 Send me a message!
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I know two languages
